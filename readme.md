@@ -4,4 +4,4 @@
 OMXS30 year 2024
 
 ### Contact
-johan (at) johan (dot) se
+Reach out to me: johan (at) johan (dot) se
